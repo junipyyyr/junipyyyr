@@ -3,11 +3,11 @@ Seriously. Don't expect anything special. I am merely but an amateur in the worl
 <br>
 While I have you, why don't I sit you down for a moment to tell you about myself. Come on, it won't take long.<br>
 <br>
-My name is **June**. Or, the more eclectic choice, **Junipyr**, because seriously, that just sounds kinda cool. I mean, substituing an E for a Y? Unheard of.<br>
+My name is **Juni**. Or, the more eclectic choice, **Junipyr**, because seriously, that just sounds kinda cool. I mean, substituing an E for a Y? Unheard of.<br>
 <br>
-If it wasn't already apparent by my name, I am indeed a trans woman. Who could've guessed.<br>
+If it wasn't already apparent by my name, I am indeed a trans woman. Who could've guessed...<br>
 <br>
-I don't really know how to code, and while I would devote some time to learning, that is INCREDIBLY BORING. So. I will have nothing to do, forever and forever.<br>
+I don't really know how to code that well, and while I would devote some time to learning, that is INCREDIBLY BORING. So. I will have nothing to do, forever and forever.<br>
 <br>
 Here's some art I made, because why not.<br>
 <img width="425" height="307" alt="Untitled279_20260322045850" src="https://github.com/user-attachments/assets/52ad5967-ae53-4b93-9c99-b5462a4e71b2" /> <br>
